@@ -1,0 +1,2 @@
+# 011878369NicoWilliamsMidterm
+Washington State University
